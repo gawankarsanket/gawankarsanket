@@ -2,7 +2,7 @@
 
 AI Automation Enthusiast | Communication Platforms Specialist | Machine Learning Practitioner
 
-With over **13 years of experience in enterprise communication platforms**, I specialize in **Zoom, Cisco Collaboration solutions, and global communication service operations**.
+With over **14 years of experience in enterprise communication platforms**, I specialize in **Zoom, Cisco Collaboration solutions, and global communication service operations**.
 
 Currently expanding my expertise in **Artificial Intelligence, Machine Learning, and workflow automation** to build intelligent solutions for modern communication platforms.
 
